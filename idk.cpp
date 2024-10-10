@@ -1,1 +1,0 @@
- wzthelen@mines.edu
